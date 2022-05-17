@@ -15,9 +15,9 @@ I'm communicative, responsible person, I can prioritize tasks and also I have a 
 
 ### Сontact me:
 
-[![LinkedIn](https://user-images.githubusercontent.com/105749144/168909708-72e11684-a6f6-4cfb-9a76-4a6ba92adbbc.png)(linkedin.com/in/anhelina-malkina-0a53661ab)
+[![LinkedIn](https://user-images.githubusercontent.com/105749144/168909708-72e11684-a6f6-4cfb-9a76-4a6ba92adbbc.png)](linkedin.com/in/anhelina-malkina-0a53661ab)
 
-[![Telegram](https://user-images.githubusercontent.com/105749144/168909770-0a184fc1-b806-402c-b89c-808e401f5cd1.png)(@Anhelina_Malkina)
+[![Telegram](https://user-images.githubusercontent.com/105749144/168909770-0a184fc1-b806-402c-b89c-808e401f5cd1.png)](@Anhelina_Malkina)
 
 
  
