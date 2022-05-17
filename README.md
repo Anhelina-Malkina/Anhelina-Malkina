@@ -1,9 +1,13 @@
 ### 💻 Work expiriens:
 
-I have one year of experience in IT-company as a Manual QA Engineer.🌿 
+I have one year of experience in IT-company as a Manual QA Engineer.🌿
+
 I have been involved in testing of mobile applications on iOS and Android platforms. 
+
 I also have experience in WEB application testing. 
+
 I am open to work in a product or outsourcing company.
+
 I'm communicative, responsible person, I can prioritize tasks and also I have a good sense of humor. :)
 
 
