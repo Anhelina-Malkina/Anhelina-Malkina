@@ -10,10 +10,9 @@ I'm communicative, responsible person, I can prioritize tasks and also I have a 
 
 
 🛠 Tools:
+![1](https://user-images.githubusercontent.com/105749144/168906165-27565382-7cca-4a92-9911-0683a538e9f5.jpg) ![2](https://user-images.githubusercontent.com/105749144/168906197-03211095-becf-4410-8f82-47f3ed9d3e95.jpg) ![3](https://user-images.githubusercontent.com/105749144/168906215-4960a01f-95b5-4b2d-99de-0f2e4f5be542.png) ![4](https://user-images.githubusercontent.com/105749144/168906246-e6c6f395-f7d6-404d-8590-9b0b7eb69a05.png) ![5](https://user-images.githubusercontent.com/105749144/168906266-165bc1a3-f7b0-44da-bce7-c17c240561c6.png) 
 
-![1](https://user-images.githubusercontent.com/105749144/168905457-465ade57-4a93-4a63-9bc4-ddc5218104fa.jpg)
 
-![Screenshot_3](https://user-images.githubusercontent.com/105749144/168903894-81015e03-8532-49b8-a274-8fe367e508eb.png)
-![image](https://user-images.githubusercontent.com/105749144/168904087-a5261ee7-0c12-4836-9f0d-3a4e25474d41.png)
-![image](https://user-images.githubusercontent.com/105749144/168904138-874453e5-1f71-4492-ba27-9acc05be5a9a.png)
-![image](https://user-images.githubusercontent.com/105749144/168904181-c9cb61de-13ff-414a-a744-86a8f27402e8.png)
+ 
+
+
