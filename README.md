@@ -11,7 +11,7 @@ I'm communicative, responsible person, I can prioritize tasks and also I have a 
 
 🛠 Tools:
 
-![1](https://user-images.githubusercontent.com/105749144/168904989-6eba903c-2ec6-419c-8470-874035fb18d2.jpg)
+![1](https://user-images.githubusercontent.com/105749144/168905457-465ade57-4a93-4a63-9bc4-ddc5218104fa.jpg)
 
 ![Screenshot_3](https://user-images.githubusercontent.com/105749144/168903894-81015e03-8532-49b8-a274-8fe367e508eb.png)
 ![image](https://user-images.githubusercontent.com/105749144/168904087-a5261ee7-0c12-4836-9f0d-3a4e25474d41.png)
